@@ -64,6 +64,7 @@ I love tackling complex challenges, optimizing performance, and learning cutting
 ---
 
 ## 🏆 Honors & Awards  
+- Gold Medalist - Fall 2025
 - Bronze Medalist – Spring 2024  
 - Dean’s List – Spring & Fall 2024, Spring 2025  
 - High Achiever – O&A Levels  
